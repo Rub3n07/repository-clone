@@ -1,1 +1,7 @@
 Sifu es un juego de peleas en el que el personaje principal busca la venganza despues de que 5 personas hayan asesinado a su padre y lo hace a traves del camino del kung fu
+
+
+
+
+
+gyfergigfeg
